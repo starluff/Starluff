@@ -1,13 +1,2 @@
-![Image](https://github.com/user-attachments/assets/e7d71a6f-9b6d-4259-8efd-2ae34d7d4088
-
-she/they
-
-
-c+h freely
-
-
-
-
-ty for reading
-
+<img width="720" height="1640" alt="Image" src="https://github.com/user-attachments/assets/babb3325-600f-4c44-a37c-df8167c20f9a" />
 
